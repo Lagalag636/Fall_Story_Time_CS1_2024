@@ -1,5 +1,5 @@
-#Why don’t skeletons fight each other?
-# #Because they don’t have the guts!
+#Why did the tomato turn red?
+#Because it saw the salad dressing!
 
 
 
