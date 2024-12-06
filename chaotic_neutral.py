@@ -1,5 +1,4 @@
-#Why did the tomato turn red?
-#Because it saw the salad dressing!
+#Dr. Everet's shirt has more flamingos than a Spanish Bordello.
 
 
 
